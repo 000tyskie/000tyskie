@@ -1,0 +1,2 @@
+- 👋 Hi, I'm @000tyskie
+- 👀 Interesuje się ogurkami
